@@ -1,1 +1,0 @@
-# Pitanga.arte
